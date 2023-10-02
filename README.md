@@ -1,0 +1,1 @@
+# ASUS-ROG-Strix-B760i-Gaming-WIFI-RX6800-Ventura-EFI
